@@ -1,4 +1,5 @@
-https://static0.srcdn.com/wordpress/wp-content/uploads/2024/03/honkai-star-rail-aventurine-materials-ascension-skills-farming.jpg
+content://com.android.chrome.FileProvider/images/screenshot/17842703074381900291965.jpg<img width="1400" height="700" alt="image" src="https://github.com/user-attachments/assets/f5a4c4ad-00ce-4c90-bd73-0ea869af0122" />
+
 
 $${\color{limegreen}Introductions}$$
  
