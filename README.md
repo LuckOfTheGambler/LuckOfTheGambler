@@ -10,7 +10,7 @@
 
 $${\color{limegreen}Introductions}$$
  
-- A.K.A. $${\color{cyan}Sora}$$ or $${\color{lightblue}Seira}$$
+- A.K.A. $${\color{cyan}Sora}$$, $${\color{lightblue}Seira}$$ or $${\color{yellow}Pudding}$$
 - Pronouns: $${\color{pink}She/Her}$$, $${\color{orangered}They/Them}$$
 - Age: 22
 
@@ -18,7 +18,7 @@ Extras???
 
 - This user is usually offline, AFK or Idle, sometimes sleeping if their movements in Pony Town are kinda odd or off.
 
-- This user is also socially awkward, never interacts first and may reply dryly or stupidly according to their mood (I.g.: If they just woke up or if they're hungry). This user usually sit around friends and could be friendly, They don't bite I promise :'(.
+- This user is also, introverted, socially awkward, never interacts first and may reply dryly or stupidly according to their mood (I.g.: If they just woke up or if they're hungry). This user usually sit around friends, behind  counters, behind friends and could be friendly, They don't bite I promise :'(.
 
 - ^ This user also socially conscious and a huge overthinker, and they may think too much and puts action quickly before things gets worse on their end. Their trying hard.
 
