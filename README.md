@@ -24,4 +24,4 @@ Extras???
 
 - This user belongs to multiple fandoms, and even if they may or may not cosplay them, they do like certain animes/shows/games.
 
-- This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness/randomness/whimsy. This user don't sign Ata (even SP) of problematic users/players and even their mutual's Ata, yk who you are :/.
+- This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness/randomness/whimsy.
