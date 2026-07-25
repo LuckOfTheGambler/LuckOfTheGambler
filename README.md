@@ -28,4 +28,6 @@ Extras???
 
 - This user belongs to multiple fandoms, and even if they may or may not cosplay them, they do like certain animes/shows/games.
 
-- This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness/randomness/whimsy.
+- This user has took effortless hours to do their cosplays, even in between no motivations. Copying said cosplay will make this user sad, bc their hardwork will probably meant nothing.
+
+- This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness / randomness / whimsy.
