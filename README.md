@@ -30,4 +30,6 @@ Extras???
 
 - This user has took effortless hours to do their cosplays, even in between no motivations. Copying said cosplay will make this user sad, bc their hardwork will probably meant nothing.
 
+- This user may lose mood depending on who their talking to, what their topic is and among other things, so interact with every caution.
+
 - This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness / randomness / whimsy.
