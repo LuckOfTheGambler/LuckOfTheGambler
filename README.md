@@ -16,9 +16,10 @@ $${\color{limegreen}Introductions}$$
  
 - A.K.A. $${\color{cyan}Sora}$$, $${\color{lightblue}Seira}$$ or $${\color{yellow}Pudding}$$
 - Pronouns: $${\color{pink}She/Her}$$, $${\color{orangered}They/Them}$$
-- Age: 22
+- Age: 22 y.o.
+- Birthday: 11/10 (mm/dd)
 
-Extras???
+Extras or RBYIs???
 
 - This user is usually offline, AFK or Idle, sometimes sleeping if their movements in Pony Town are kinda odd or off.
 
