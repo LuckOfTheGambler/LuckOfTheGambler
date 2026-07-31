@@ -1,5 +1,5 @@
 <p align="center">
-  <url src=![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler&color=green&label=Lucky+Stars ) >
+  <img src=![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler&color=green&label=Lucky+Stars ) >
 </p>
 
 </br>
