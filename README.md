@@ -23,6 +23,8 @@ Extras or RBYIs???
 
 - This user is usually offline, AFK or Idle, sometimes sleeping if their movements in Pony Town are kinda odd or off.
 
+- If this user don't move or say anything, shoot them a whisper, best to get their attention that way. Reminder please be respectful about your messages on whispers, if it's positive you'll definitely get a reply, but if it's negative, you'll get ignored.
+
 - This user is also, introverted, socially awkward, never interacts first and may reply dryly or stupidly according to their mood (I.g.: If they just woke up or if they're hungry). This user usually sit around friends, behind  counters, behind friends and could be friendly, They don't bite I promise :'(.
 
 - ^ This user also socially conscious and a huge overthinker, and they may think too much and puts action quickly before things gets worse on their end. Their trying hard.
