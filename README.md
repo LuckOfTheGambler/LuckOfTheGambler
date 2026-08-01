@@ -11,7 +11,7 @@
 </br>
 ~Aventurine
 
-PT's Aven on [@pt-hall-of-media](https://github.com/pt-hall-of-media) :3
+PT's Aven title on [@pt-hall-of-media](https://github.com/pt-hall-of-media) :3
 
 $${\color{limegreen}Introductions}$$
  
