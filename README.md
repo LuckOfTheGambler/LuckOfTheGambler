@@ -35,6 +35,6 @@ Extras or RBYIs???
 
 - This user may lose mood depending on who their talking to, what their topic is and among other things, so interact with every caution.
 
-- If you've heard past dramas and/or rumors surrounding or about this user, pls don't bring it up in public chat. I don't want to be involved, and don't get this user's friends/moots involved, on another one and loose interest in playing games, esp when they just wanna see their friends.
+- If you've heard past dramas and/or rumors surrounding or about this user, pls don't bring it up in public chat. They don't want to be involved, and don't get this user's friends/moots involved, on another one (drama) and loose interest in playing games, esp when they just wanna see their friends.
 
 - This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness / randomness / whimsy.
