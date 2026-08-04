@@ -11,7 +11,8 @@
 </br>
 ~Aventurine
 
-PT's Aven title on [@pt-hall-of-media](https://github.com/pt-hall-of-media) :3
+PT's Aven title on [@pt-hall-of-media](https://github.com/pt-hall-of-media) and PT's Yatta the Piñata on [@title-town](https://github.com/title-town) :3
+
 
 $${\color{limegreen}Introductions}$$
  
