@@ -40,3 +40,11 @@ Extras or RBYIs???
 - If you've heard past dramas and/or rumors surrounding or about this user, pls don't bring it up in public chat. They don't want to be involved, and don't get this user's friends/moots involved, on another one (drama) and loose interest in playing games, esp when they just wanna see their friends.
 
 - This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness / randomness / whimsy.
+
+♧My alt/s♤
+[Alhaitham alt](https://github.com/AdmonishingInstruction)
+ 
+[Kaveh alt](https://github.com/GardenOfParadisaea)
+
+
+[Dan Heng alt](https://github.com/ColdDragonYoung)
