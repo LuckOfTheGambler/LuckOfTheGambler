@@ -42,9 +42,10 @@ Extras or RBYIs???
 - This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness / randomness / whimsy.
 
 ♧My alt/s♤
-[Alhaitham alt](https://github.com/AdmonishingInstruction)
+</br>
+[AdmonishingInstruction/Alhaitham Alt](https://github.com/AdmonishingInstruction)
  
-[Kaveh alt](https://github.com/GardenOfParadisaea)
+[GardenOfParadisaea/Kaveh alt](https://github.com/GardenOfParadisaea)
 
 
-[Dan Heng alt](https://github.com/ColdDragonYoung)
+[ColdDragonYoung/Dan Heng Alt](https://github.com/ColdDragonYoung)
