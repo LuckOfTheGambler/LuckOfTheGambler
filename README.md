@@ -23,7 +23,7 @@ $${\color{limegreen}Introductions}$$
 
 Extras or RBYIs???
 
-- This user is usually offline, AFK or Idle, sometimes sleeping if their movements in Pony Town are kinda odd or off.
+- This user is usually offline (hiding/invisible status), AFK or Idle, sometimes sleeping if their movements in Pony Town are kinda odd or off.
 
 - If this user don't move or say anything, shoot them a whisper, best to get their attention that way. Reminder please be respectful about your messages on whispers, if it's positive you'll definitely get a reply, but if it's negative, you'll get ignored.
 
