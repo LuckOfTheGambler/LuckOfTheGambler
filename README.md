@@ -11,7 +11,7 @@
 </br>
 ~Aventurine
 
-◇ PT's Aven title on [@pt-hall-of-media](https://github.com/pt-hall-of-media) and [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), then PT's Yatta the Piñata on [@title-town](https://github.com/title-town) !! :3
+◇ PT's Aven title on [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame),and [@cosplaytown](https://github.com/cosplaytown), then PT's Yatta the Piñata on [@title-town](https://github.com/title-town) !! :3
 
 ♧ Kaveh and Dan Heng Yumes on [@pt-loveforfictional](https://github.com/pt-loveforfictional) !! ^w^
 
