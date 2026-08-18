@@ -36,7 +36,7 @@ Extras or RBYIs???
 
 - This user has took effortless hours to do their cosplays, even in between no motivations. Copying said cosplay will make this user sad, bc their hardwork will probably meant nothing.
 
-- This user may lose mood depending on who their talking to, what their topic is and among other things, so interact with every caution.
+- This user may lose mood or leave the game depending on who their talking to, what the topic is (esp in public chat) and among other things, so interact with every caution.
 
 - If you've heard past dramas and/or rumors surrounding or about this user, pls don't bring it up in public chat. They don't want to be involved, and don't get this user's friends/moots involved, on another one (drama) and loose interest in playing games, esp when they just wanna see their friends.
 
@@ -44,9 +44,9 @@ Extras or RBYIs???
 
 ♧My alt/s♤
 </br>
-[AdmonishingInstruction/Alhaitham Alt](https://github.com/AdmonishingInstruction)
+[AdmonishingInstruction :: Alhaitham Alt](https://github.com/AdmonishingInstruction)
  
-[GardenOfParadisaea/Kaveh alt](https://github.com/GardenOfParadisaea)
+[GardenOfParadisaea :: Kaveh Alt](https://github.com/GardenOfParadisaea)
 
 
-[ColdDragonYoung/Dan Heng Alt](https://github.com/ColdDragonYoung)
+[ColdDragonYoung :: Dan Heng Alt](https://github.com/ColdDragonYoung)
