@@ -11,7 +11,7 @@
 </br>
 ~Aventurine
 
-◇ PT's Aven title on [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame),and [@cosplaytown](https://github.com/cosplaytown), then PT's Yatta the Piñata on [@title-town](https://github.com/title-town) !! :3
+◇ PT's Aven title on [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame),and [@cosplaytown](https://github.com/cosplaytown), [@cloudy-town](https://github.com/cloudy-town). Then PT's Yatta the Piñata on [@title-town](https://github.com/title-town) !! :3
 
 ♧ Kaveh and Dan Heng Yumes on [@pt-loveforfictional](https://github.com/pt-loveforfictional) !! ^w^
 
@@ -52,3 +52,5 @@ Extras or RBYIs???
 [ColdDragonYoung :: Dan Heng Alt](https://github.com/ColdDragonYoung)
 
 [Parfaedian-Coffee-Conjurer :: Espresso Cookie Alt](https://github.com/Parfaedian-Coffee-Conjurer)
+
+[P.S. : The purpose of my alts are just labels and/or name placeholders for those specific character cosplays. They are not systems of another me, those alts are still me.)
