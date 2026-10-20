@@ -32,6 +32,8 @@ Extras or RBYIs???
 
 - ^ This user also socially conscious and a huge overthinker, and they may think too much and puts action quickly before things gets worse on their end. Their trying hard.
 
+- This user blocks or hides freely, and if I do, just don't ask or bother this user's friends/mutals.
+
 - This user belongs to multiple fandoms, and even if they may or may not cosplay them, they do like certain animes/shows/games.
 
 - This user has took effortless hours to do their cosplays, even in between no motivations. Copying said cosplay will make this user sad, bc their hardwork will probably meant nothing.
